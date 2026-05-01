@@ -1,1 +1,0 @@
-# Palo-alto-networks-patilakshay
